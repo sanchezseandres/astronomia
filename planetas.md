@@ -2,4 +2,4 @@
 
 que planes hay en el ssitema soloar??
 
-mercurio, venus, martes, jupite
+mercurrio , venus, la tierra marte, tiene algo en comn
